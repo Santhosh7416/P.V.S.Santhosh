@@ -1,1 +1,1 @@
-# :star with circle: About Me:
+# :star: About Me:
